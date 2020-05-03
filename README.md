@@ -1,1 +1,0 @@
-# yurynino.github.io
